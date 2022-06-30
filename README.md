@@ -1,4 +1,4 @@
-# Sleeep-Learn-Succeed* **
+# Sleep-Learn-Succeed* **
 
 --- WHERE THE IDEA OF THE PROJECT CAME FROM ---
 
